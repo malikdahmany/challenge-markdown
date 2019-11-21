@@ -32,11 +32,12 @@
 You need a listening ear.
 
 ## A FUNNY STORY:
-***One time i was so angry at my mom when i was a child, i put superglue in her hairgel :') 
-Her hair was destroyed & she had to cut her hair off.***
+***One time i was so angry at my mom when i was a child, i put superglue in her hairgel :')*** 
+***Her hair was destroyed & she had to cut her hair off.***
 
 ### TL;DR:
 ***Superglue in my mom her hairgel :')***
+
 
 [<< PREVIOUS ](https://github.com/joerilapin/markdown-challenge/blob/master/README.md/ "Title")
 || MALIK DAHMANY ||
